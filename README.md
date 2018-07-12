@@ -1,0 +1,2 @@
+# kurdestan
+Long live Kurdistan
